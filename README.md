@@ -1,1 +1,0 @@
-# Idea-validate-implement-
